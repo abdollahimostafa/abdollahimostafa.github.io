@@ -1,2 +1,0 @@
-# abdollahimostafa.github.io
-hello
